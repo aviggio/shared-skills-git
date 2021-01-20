@@ -1,6 +1,6 @@
 # Our Collectively Edited File
 * Seth Spielman [Balloon Syndrome, a disease that causes hedgehogs to inflate](https://en.wikipedia.org/wiki/Balloon_syndrome)
-* Alex Viggio
+* Alex Viggio [Scottish Society for Prevention of Cruelty to Animals](https://en.wikipedia.org/wiki/Scottish_Society_for_Prevention_of_Cruelty_to_Animals)
 * Brad  Weiner 
 * Molly Doyle
 * Renae Dahiya 
